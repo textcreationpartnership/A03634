@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-In Homelye to be read in the tyme of pestylence, and a moste presente remedye for the same.〈◊〉 God. 
+
 1. To all Pastoures and Curates Wythin the Kinges Maiesties Diocesse of Worcester and Gloucester.
 
 #####Body#####
